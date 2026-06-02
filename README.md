@@ -1,2 +1,0 @@
-# nycpacheco.github.io
-Portfolio
